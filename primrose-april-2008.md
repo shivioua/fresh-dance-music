@@ -7,8 +7,11 @@ Tags: *#dance* *#club* *#pop* *#house*
 
 [![Fresh Dance Music](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/8/3/0/f/bc9e-d241-4537-97e0-3a140a2feefc)](https://youtu.be/d3tK1HZXAIE)
 
-* **LISTEN (78min):** [YouTube](https://youtu.be/d3tK1HZXAIE), [Soundcloud](https://soundcloud.com/freshdancemusic8/primrose-april-2008?si=1b761d39d0e64684bc64de19b70ae73c&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing), [Mixcloud](http://www.mixcloud.com/FreshDanceMusic/primrose-april-2008/), [Spotify](https://open.spotify.com/playlist/3N1sPOVKh7ZOMSREDFRzXP?si=c13c5cb649884a1c)
-* Support me on [Patreon](https://www.patreon.com/shivioua) if you want to download MP3 version of this set.
+Listen on:
+* [YOUTUBE](https://youtu.be/d3tK1HZXAIE)
+* [SOUNDCLOUD](https://soundcloud.com/freshdancemusic8/primrose-april-2008)
+* [MIXCLOUD](http://www.mixcloud.com/FreshDanceMusic/primrose-april-2008/)
+* [SPOTIFY](https://open.spotify.com/playlist/3N1sPOVKh7ZOMSREDFRzXP?si=c13c5cb649884a1c)
 
 TRACKLIST:  
 
@@ -34,6 +37,7 @@ TRACKLIST:
 * _73 min:_ deep melange vs. backens & gruuenwald – mas que nada (backens & gruenwald vocal mix)
 <a href="https://itunes.apple.com/pl/album/mas-que-nada-backens-gruenwald/id271449344?i=271449395" target="_blank">BUY</a>
 
+If you like what I've created then feel free to support me on [Patreon](https://www.patreon.com/shivioua) or [buy me a vinyl](https://www.buymeacoffee.com/shivioua).
 Enjoy.
 
 ----
