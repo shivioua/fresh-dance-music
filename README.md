@@ -2,12 +2,19 @@
 
 [YouTube](https://www.youtube.com/watch?v=gNgMFgPG7JU&list=PLUY58bai67rbGv9E3z6sDwa3CtIum_2dc), [Soundcloud](https://soundcloud.com/freshdancemusic/tracks), [Spotify](https://open.spotify.com/playlist/5pauzyEbUAAKknivnm52nm), [Facebook](https://www.facebook.com/FreshDanceMusicSets), [Twitter](https://twitter.com/freshdancemusic), [Instagram](https://www.instagram.com/freshdancemusicsets/) 
 
+**Fresh Dance Music Sets by Shivioua**
+
+Welcome to Fresh Dance Music Sets, where Shivioua delivers high-energy DJ mixes full of club, dance, and EDM vibes. Since launching in 2008, Shivioua has been creating unique soundscapes designed to transport listeners straight to the heart of the dancefloor.
+
+With each set, Shivioua takes a fresh approach to blending tracks, focusing on mood and flow to keep listeners energized and immersed. His mixes capture everything from deep grooves to euphoric highs, crafted for dance music enthusiasts who crave dynamic and engaging experiences.
+
+Tune in, turn it up, and let the journey begin! 🎧
+
 # Sets 
 
 * **[New Time, Same Place (August 2021)](./new-time-same-place-august-2021.md)**
 * [Rzepedka (April 2021)](./rzepedka-april-2021.md)
 * [Izolatorium (November 2020)](./izolatorium-november-2020.md)
-* [Przed Duszki (October 2020)](./przed-duszki-october-2020.md)
 * [Beachball (July 2018)](./beachball-july-2018.md)
 * [Somebody New (November 2015)](./somebody-new-november-2015.md)
 * [Cave (January 2015)](./cave-january-2015.md)
