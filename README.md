@@ -1,6 +1,6 @@
-![Fresh Dance Music Sets](./fresh-dance-music.jpg)
+[![Fresh Dance Music Sets](./fresh-dance-music.jpg)](https://www.youtube.com/watch?v=d3tK1HZXAIE&list=PLUY58bai67rbGv9E3z6sDwa3CtIum_2dc&index=2)
 
-[YouTube](https://www.youtube.com/watch?v=gNgMFgPG7JU&list=PLUY58bai67rbGv9E3z6sDwa3CtIum_2dc), [Soundcloud](https://soundcloud.com/freshdancemusic/tracks), [Spotify](https://open.spotify.com/playlist/5pauzyEbUAAKknivnm52nm), [Facebook](https://www.facebook.com/FreshDanceMusicSets), [Twitter](https://twitter.com/freshdancemusic), [Instagram](https://www.instagram.com/freshdancemusicsets/) 
+[YouTube](https://www.youtube.com/watch?v=d3tK1HZXAIE&list=PLUY58bai67rbGv9E3z6sDwa3CtIum_2dc&index=2), [Soundcloud](https://soundcloud.com/shivioua/sets/fresh-dance-music-sets), [Mixcloud](https://www.mixcloud.com/shivioua/playlists/fresh-dance-music/), [Spotify](https://open.spotify.com/playlist/5pauzyEbUAAKknivnm52nm)
 
 **Fresh Dance Music Sets by Shivioua**
 
