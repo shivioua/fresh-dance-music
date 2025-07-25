@@ -14,7 +14,6 @@ Tune in, turn it up, and let the journey begin! 🎧
 
 * **[New Time, Same Place (August 2021)](./new-time-same-place-august-2021.md)**
 * [Rzepedka (April 2021)](./rzepedka-april-2021.md)
-* [Izolatorium (November 2020)](./izolatorium-november-2020.md)
 * [Beachball (July 2018)](./beachball-july-2018.md)
 * [Somebody New (November 2015)](./somebody-new-november-2015.md)
 * [Cave (January 2015)](./cave-january-2015.md)
