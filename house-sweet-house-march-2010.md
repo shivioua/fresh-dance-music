@@ -5,10 +5,10 @@
 Date: **2010-03-21**  
 Tags: **#dance**, **#vocal**, **#house**  
 
-[![Fresh Dance Music](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528UURtMjg0TFFYcTA)](https://www.mixcloud.com/FreshDanceMusic/house-sweet-house-march-2010/)
+[![Fresh Dance Music - House Sweet House (March 2010)](./img/house-sweet-house-march-2010.jpg)](https://www.mixcloud.com/FreshDanceMusic/house-sweet-house-march-2010/)
 
-* [**Listen on MIXCLOUD (61 min)**](https://www.mixcloud.com/FreshDanceMusic/house-sweet-house-march-2010/)
-* [**Download MP3 (85MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LFvI5T8HfjjelMJsA?e=lZt7mK)
+* [**Listen on MIXCLOUD**](https://www.mixcloud.com/FreshDanceMusic/house-sweet-house-march-2010/)
+* [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v2LFvI5T8HfjjelMJsA?e=lZt7mK)
 
 TRACKLIST:
 
