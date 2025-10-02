@@ -5,8 +5,9 @@
 Date: 2010-01-08    
 Tags: dance, pop    
 
-[![Fresh Dance Music](https://drive.google.com/uc?export=download&id=0B8ZWtaisj528R2xBSXJoYlkzOVE)](https://1drv.ms/u/s!AmzuuXrjf51v2LFkW-3aWYgrDZd0mQ?e=jQHOHn)
+[![Shivioua - For An Angel (January 2010)](./img/for-an-angel-january-2010.jpg)](https://www.mixcloud.com/FreshDanceMusic/for-an-angel-january-2010/)
 
+* [**Listen on MIXCLOUD**](https://www.mixcloud.com/FreshDanceMusic/for-an-angel-january-2010/)
 * [**DOWNLOAD (77MB, 56min)**](https://1drv.ms/u/s!AmzuuXrjf51v2LFkW-3aWYgrDZd0mQ?e=jQHOHn)
 
 TRACKLIST:  
