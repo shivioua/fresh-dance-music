@@ -5,11 +5,11 @@
 Date: 2018-07-27  
 Tags: *#dance* *#pop* *#deep* *#house* *#vocal*    
   
-[![Fresh Dance Music - Beachball (July 2018)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/0/b/9/7/2884-87c8-4981-9636-3f5b54797f8e)](https://docs.google.com/uc?id=12C2w-NwZwHSBymUqjAbyXa8IsBz8KUDE&export=download)  
+[![Fresh Dance Music - Beachball (July 2018)](./img/beachball-july-2018.jpg)](https://www.mixcloud.com/FreshDanceMusic/beachball-july-2017/)  
 
-* [**Download MP3 (163MB, 1h 11min)**](https://docs.google.com/uc?id=12C2w-NwZwHSBymUqjAbyXa8IsBz8KUDE&export=download) 
 * [**Listen on MIXCLOUD**](https://www.mixcloud.com/FreshDanceMusic/beachball-july-2017/) 
-or **[MIX-SETS](http://www.mix-sets.com/track/8688/fresh-dance-music-beachball-july-2018)**.
+* [**Download MP3 (163MB, 1h 11min)**](https://docs.google.com/uc?id=12C2w-NwZwHSBymUqjAbyXa8IsBz8KUDE&export=download) 
+
 
 **Tracklist:**  
  
