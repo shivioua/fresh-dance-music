@@ -8,7 +8,7 @@ Tags: *#dance* *#pop* *#deep* *#house* *#vocal*
 [![Fresh Dance Music - Beachball (July 2018)](./img/beachball-july-2018.jpg)](https://www.mixcloud.com/FreshDanceMusic/beachball-july-2017/)  
 
 * [**Listen on MIXCLOUD**](https://www.mixcloud.com/FreshDanceMusic/beachball-july-2017/) 
-* [**Download MP3 (163MB, 1h 11min)**](https://docs.google.com/uc?id=12C2w-NwZwHSBymUqjAbyXa8IsBz8KUDE&export=download) 
+* [**Download MP3**](https://1drv.ms/u/c/71d6cde5451f375a/EQ3KCLSaxGtAmhmnmLOJie4B8hfnb69oC_kXYQggv3ZpLw?e=frlzsD) 
 
 
 **Tracklist:**  
