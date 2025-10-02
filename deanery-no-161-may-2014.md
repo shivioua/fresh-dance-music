@@ -15,11 +15,11 @@ Tracklist:
 
 **[00:00]** Naturally 7 - Feel it (In the air tonight) 
 <a href="https://itunes.apple.com/pl/album/feel-it-in-the-air-tonight/id437778850?i=437778856" target="_blank">BUY</a>  
-**[04:35]** Podsiadło - S&T  
+**[04:35]** Podsiadło - S&T 
 <a href="https://itunes.apple.com/pl/album/s-t/id646451952?i=646452100" target="_blank">BUY</a>  
 **[08:26]** Klingande - Jubel (Zero Set Remix)   
 **[12:21]** Hook N Sling, Goodwill - Take You Higher (Club Mix)  
-**[17:28]** Clean Bandit, Jess Glynne - Rather Be (The Magician Remix)  
+**[17:28]** Clean Bandit, Jess Glynne - Rather Be (The Magician Remix) 
 <a href="https://itunes.apple.com/pl/album/rather-be-feat.-jess-glynne/id787234308?i=787234404" target="_blank">BUY</a>  
 **[20:13]** Rihanna ft. Calvin Harris - We Found Love (Calvin Harris Extended Mix)  
 **[24:12]** Ola - Jackie Kennedy  
@@ -33,7 +33,7 @@ Tracklist:
 <a href="https://itunes.apple.com/pl/album/never-say-goodbye-feat.-bright/id715475542?i=715475601" target="_blank">BUY</a>  
 **[44:55]** Ummet Ozcan, NERVO, R3hab - Revolution (Vocal Mix)  
 **[48:55]** Agnes - Release Me  
-**[51:51]** Loreen - Euphoria  
+**[51:51]** Loreen - Euphoria 
 <a href="https://itunes.apple.com/pl/album/euphoria/id568113928?i=568114160" target="_blank">BUY</a>  
 **[55:03]** Ellie Goulding - Burn (Maths Time Joy Remix)
 <a href="https://itunes.apple.com/pl/album/burn-maths-time-joy-remix/id683253501?i=683253630" target="_blank">BUY</a>  
