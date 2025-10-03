@@ -7,8 +7,8 @@ Tags: *#club* *#dance* *#pop* *#house* *#djset* *#vocal*
   
 [![Shivioua - New Time, Same Place (August 2021)](./img/new-time-same-place-august-2021.jpg)](https://www.mixcloud.com/FreshDanceMusic/new-time-same-place-august-2021/)
 
-* [**Listen on MIXCLOUD (59min)**](https://www.mixcloud.com/FreshDanceMusic/new-time-same-place-august-2021/)
-* [**Download MP3 (134MB)**](https://1drv.ms/u/s!AmzuuXrjf51v38ps7eUePWVih7N4Pg?e=ewfB0R) 
+* [**Listen on MIXCLOUD**](https://www.mixcloud.com/FreshDanceMusic/new-time-same-place-august-2021/)
+* [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v38ps7eUePWVih7N4Pg?e=ewfB0R) 
 
 TRACKLIST:  
 
