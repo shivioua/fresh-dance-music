@@ -10,7 +10,7 @@ Tags: *#dance* *#club* *#pop* *#house*
 Listen on:
 * [YOUTUBE](https://youtu.be/d3tK1HZXAIE)
 * [SOUNDCLOUD](https://soundcloud.com/freshdancemusic8/primrose-april-2008)
-* [MIXCLOUD](http://www.mixcloud.com/FreshDanceMusic/primrose-april-2008/)
+* [MIXCLOUD](https://www.mixcloud.com/FreshDanceMusic/primrose-april-2008/)
 * [SPOTIFY](https://open.spotify.com/playlist/3N1sPOVKh7ZOMSREDFRzXP?si=c13c5cb649884a1c)
 
 TRACKLIST:  

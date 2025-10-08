@@ -5,9 +5,9 @@
 Date: 2015-11-11    
 Tags: dance, house, pop, vocal    
 
-[![Progressive Awake - Somebody New (November 2015)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/3/c/a/c/1ece-c3c4-4de0-aee2-b7083c8fb111.jpg)](http://www.mixcloud.com/FreshDanceMusic/somebody-new-november-2015/)
+[![Progressive Awake - Somebody New (November 2015)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/3/c/a/c/1ece-c3c4-4de0-aee2-b7083c8fb111.jpg)](https://www.mixcloud.com/FreshDanceMusic/somebody-new-november-2015/)
 
-* [**Listen at MIXCLOUD (83min)**](http://www.mixcloud.com/FreshDanceMusic/somebody-new-november-2015/)
+* [**Listen at MIXCLOUD**](https://www.mixcloud.com/FreshDanceMusic/somebody-new-november-2015/)
 * [**Download MP3 (190MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LF1CeMidEE49HY6YQ?e=nBV7X5)
 
 Tracklist:  

@@ -8,7 +8,7 @@ Tags: dance, pop, house, pop dnb
 [![Fresh Dance Music - Deanery No. 161 (May 2014)](./img/deanery-no-161-may-2014.jpg)](https://www.mixcloud.com/FreshDanceMusic/deanery-no-161-may-2014/)  
 Photo by: **Justyna Helena Majewska** 
 
-* [**Listen on MIXCLOUD**](http://www.mixcloud.com/FreshDanceMusic/deanery-no-161-may-2014/) 
+* [**Listen on MIXCLOUD**](https://www.mixcloud.com/FreshDanceMusic/deanery-no-161-may-2014/) 
 * [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v2LFzn_Kb17pUxn1bQg?e=uoeP0V) 
 
 Tracklist:  
