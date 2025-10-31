@@ -26,6 +26,7 @@ Tracklist:
 * Kastra, Dani King – I Can't Stop (Extended Mix)
 * Tiësto, Don Omar, Lucenzo – Danza Kuduro (Tiësto Remix)
 * Linney, Layton Giordani, Sarah De Warren – Act Of God (Extended Mix)
+* Armand Van Helden, A-Trak, Duck Sauce – Barbra Streisand (Original Mix)
 * Sean Finn, Funkera – The Man with the Red Face (Extended Mix)
 * Joshwa – Mercy (Extended)
 * Kevin McKay – In The Air Tonight (Amal Nemer Extended Remix)
