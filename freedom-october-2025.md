@@ -3,7 +3,7 @@
 ----
 
 Date: *2025-10-31*  
-Genres: *#Progressive House*, *#Tech House*, *#Deep House*, *#Dance*, *#Pop*, *#Latin*, *#Peak/Driving Techno*, *#Melodic House*, *#Trance*  
+Genres: *#Progressive House*, *#Tech House*, *#Deep House*, *#Dance*, *#Pop*, *#Latin*, *#Peak/Driving Techno*, *#Melodic House*, *#Trance*, *#MixedNotInKey#
 
 [![Shivioua - Freedom (October 2025)](./fresh-dance-music.jpg)](https://www.mixcloud.com/shivioua/fresh-dance-music-freedom-october-2025/)
 
