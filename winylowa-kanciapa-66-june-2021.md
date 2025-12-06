@@ -2,9 +2,9 @@
 
 ----
 
-Date: *2021-06-28*
-Genres: *#house #disco #techhouse #vocal #acidhouse #synthpop*
-
+Date: *2021-06-28*  
+Genres: *#house #disco #techhouse #vocal #acidhouse #synthpop*  
+  
 [![Shivioua - Winylowa Kanciapa #66 (June 2021)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/8/5/0/c/19de-3f2c-42a2-ab50-fc6b5f8ff456)](https://www.youtube.com/live/GvweekKmS3o?t=3767s)
 
 
