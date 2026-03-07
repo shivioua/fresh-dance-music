@@ -3,17 +3,20 @@
 ----
 
 Date: *2008-04-01*  
-Tags: *#dance* *#club* *#pop* *#house*  
+Genres: *#Dance* *#Club* *#Pop* *#House*  
 
-[![Fresh Dance Music](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/8/3/0/f/bc9e-d241-4537-97e0-3a140a2feefc)](https://youtu.be/d3tK1HZXAIE)
+[![Shivioua - Primrose (April 2008)](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/8/3/0/f/bc9e-d241-4537-97e0-3a140a2feefc)](https://youtu.be/d3tK1HZXAIE)
 
-Listen on:
-* [YOUTUBE](https://youtu.be/d3tK1HZXAIE)
-* [SOUNDCLOUD](https://soundcloud.com/freshdancemusic8/primrose-april-2008)
-* [MIXCLOUD](https://www.mixcloud.com/FreshDanceMusic/primrose-april-2008/)
-* [SPOTIFY](https://open.spotify.com/playlist/3N1sPOVKh7ZOMSREDFRzXP?si=c13c5cb649884a1c)
+----
 
-TRACKLIST:  
+### Listen on
+
+* [**YOUTUBE**](https://youtu.be/d3tK1HZXAIE)
+* [**SOUNDCLOUD**](https://soundcloud.com/freshdancemusic8/primrose-april-2008)
+* [**MIXCLOUD**](https://www.mixcloud.com/FreshDanceMusic/primrose-april-2008/)
+* [**SPOTIFY**](https://open.spotify.com/playlist/3N1sPOVKh7ZOMSREDFRzXP?si=c13c5cb649884a1c)
+
+### TRACKLIST  
 
 * _00 min:_ 2-4 grooves – writing on the wall (st. elmo’s fire) 
 <a href="https://itunes.apple.com/pl/album/writing-on-wall-st.-elmos/id273141199?i=273141281" target="_blank">BUY</a>
@@ -42,6 +45,6 @@ Enjoy.
 
 ----
 
-[BACK TO MAIN PAGE](./README.md)
+[**BACK TO MAIN PAGE**](./README.md)
 
 ----
